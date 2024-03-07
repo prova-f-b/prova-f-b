@@ -1,2 +1,2 @@
 # prova-f-b
-hem dic guillem i soc homosexual 
+hem dic guillem i soc excesivament homosexual 
